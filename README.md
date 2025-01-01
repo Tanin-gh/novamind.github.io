@@ -1,1 +1,1 @@
-# novamind-.-github-.-io
+# softskill puzzle
